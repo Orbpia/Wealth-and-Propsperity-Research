@@ -1,2 +1,2 @@
 # Wealth-and-Propsperity-Research
-https://en.wikipedia.org/wiki/The_One_Percent_(film) https://youtu.be/W-Q9AOp2FW8 https://www.google.com/search?q=THRIVE+foster+gamble https://en.wikipedia.org/wiki/Inside_Job_(2010_film)
+https://en.wikipedia.org/wiki/The_One_Percent_(film) https://www.imdb.com/title/tt0819791/ https://youtu.be/W-Q9AOp2FW8 https://www.google.com/search?q=THRIVE+foster+gamble https://en.wikipedia.org/wiki/Inside_Job_(2010_film) https://youtu.be/sYmGNetu-UU https://www.goodreads.com/en/book/show/1144371 https://en.wikipedia.org/wiki/Plutocrats_(book) https://www.thriftbooks.com/w/plutocrats-the-rise-of-the-new-global-super-rich-and-the-fall-of-everyone-else_chrystia-freeland/293364/#edition=6933628&idiq=3533418
